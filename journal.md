@@ -8,3 +8,10 @@ My design was made to help inform people about the shoes that they aquire such a
 technolgy is very helpful in many of different ways some benfit some don't but in some ways technology helps us humans is that is can inform us such as when there is a kidnapping or something the police send out a alarm to inform people 
 to help find the missing person that has been kidnapped and provde as much information as they possible can and a another can is that when there is a hurricane or such as the way they use there sirens to inform people about the natural 
 disaster so they are aware that they need to take shelter and or that they need to find high ground becuase the sirens is a form of technolgy.
+
+
+# november 3, 2025
+the biggest deal i feel is snap runs out of funding it will affect struggling veterans and or single mothers that barely make it by and single struggling fathers
+technolgy could help by promoting the food banks so people that arent aware become aware and can get the help they need either for themselves or for there kids
+when some poeple dont have anyway to get or see stuff that is only on technolgy that is why signs and bill boards help some could and may promote the food banks themselves so more poeple come and get taken care of 
+my idea would be called fast food and the way you get it is you tell your struggles and what is happening and you get a instant amount of money to buy food depending on your problem the AI system will give out a good amonut and required amonut so you have what youi need to survie and what not for your kids and its like uber or what not it gets dropped off to you if you dont have a car and the driver gets paided by the app while you get your free food but the food can only be stuff to cook or snacks and the system will only allow struggling people to get funding others will be denied and for secruity of a corrupt code we will or i will add a nasa grade level fire wall and will build it and code it.
