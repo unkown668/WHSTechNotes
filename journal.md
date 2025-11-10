@@ -15,3 +15,7 @@ the biggest deal i feel is snap runs out of funding it will affect struggling ve
 technolgy could help by promoting the food banks so people that arent aware become aware and can get the help they need either for themselves or for there kids
 when some poeple dont have anyway to get or see stuff that is only on technolgy that is why signs and bill boards help some could and may promote the food banks themselves so more poeple come and get taken care of 
 my idea would be called fast food and the way you get it is you tell your struggles and what is happening and you get a instant amount of money to buy food depending on your problem the AI system will give out a good amonut and required amonut so you have what youi need to survie and what not for your kids and its like uber or what not it gets dropped off to you if you dont have a car and the driver gets paided by the app while you get your free food but the food can only be stuff to cook or snacks and the system will only allow struggling people to get funding others will be denied and for secruity of a corrupt code we will or i will add a nasa grade level fire wall and will build it and code it.
+
+
+# november 10, 2025
+yes i am looking forward to thanksgiving break becuase i love to spend time with my family like that it is so much fun and makes me so happy and full of joy.
