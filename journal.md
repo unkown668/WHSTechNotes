@@ -19,3 +19,7 @@ my idea would be called fast food and the way you get it is you tell your strugg
 
 # november 10, 2025
 yes i am looking forward to thanksgiving break becuase i love to spend time with my family like that it is so much fun and makes me so happy and full of joy.
+
+
+# december 1, 2025
+drones are used for helping our miltary in combat and taking out units that would cost many of lifes and can help soilders scout out the area around them and see the enemy in battle, the programmers that are drone software engeinners and embedded systems software enginners, the enginners each get around 60k-116k per year, the enginners need strong Computer Science/Engineering degrees (BS minimum) and skills in C/C++, Python, for flight control & apps, plus Aerospace/Avionics knowledge, with certifications like FAA Part 107 (for civilian side) and specific military training (like AFIT) in the future i would like to do this job becuase it will be a intersting adventure to do in the miltary and help my beatiful and amazing country america 
