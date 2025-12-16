@@ -27,3 +27,7 @@ drones are used for helping our miltary in combat and taking out units that woul
 
 # december 8, 2025 
 i think a self driving car would fail becuase either the coders and programmers and enginners miss coded and messed up or it could depend on the model of the car i did some reserach and the bigger the model the harder it would be to code imagine a tesla but the size of a bus that is a lot more work but at the same time every second every code every program matters on it becuase i would think car systems would fail becuase maybe the system isnt use to the real world when there are spaces and it has to drive like a normal person sense people system failures are gonna be normal until the system is perfected which will take time because no system is perfect no matter how many experts our helping its highly impossible.
+
+
+# december 15, 2025
+i am going to down town and going to spend a lot of time with my family this winter break and chill and work out a lot.
