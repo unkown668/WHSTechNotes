@@ -31,3 +31,7 @@ i think a self driving car would fail becuase either the coders and programmers 
 
 # december 15, 2025
 i am going to down town and going to spend a lot of time with my family this winter break and chill and work out a lot.
+
+
+# january 6, 2026
+the way i used technolgy over this break is i had made some games and helped code osme and fix many of many in neeed of my help and made money helping my fellow people and or friends with what ever the task was at hand.
