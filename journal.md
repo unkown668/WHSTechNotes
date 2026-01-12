@@ -35,3 +35,7 @@ i am going to down town and going to spend a lot of time with my family this win
 
 # january 6, 2026
 the way i used technolgy over this break is i had made some games and helped code osme and fix many of many in neeed of my help and made money helping my fellow people and or friends with what ever the task was at hand.
+
+
+# january 12, 2026
+in unmoderated online spaces can cuase problems such as you could be hacked or the file and or game could fail and become corrupt, the choices that autcraft have made help protect there community by making sure that there browser is safe for everyone so it could be enjoyed by everyone, with rules it can help keep the balance of oline spaces and with a strong and sturdy hand of power so much more can be done, if developers ignored safety and much more there system could not work it would be unbalanced and will fail, the examples i know of safety is that there can be a wall of rules to keep everyone in echeck and with the right people in charge you can almost do anything and keep your community safe from all types of wrong and bad stuff that we do not need an dif the developers and mods follow the rules and safety of the online space it will become perfecly balanced and will remain a float.
